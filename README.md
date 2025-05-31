@@ -1,1 +1,2 @@
 # CSOPESY
+Isaac A. Dicayanan
